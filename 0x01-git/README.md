@@ -1,1 +1,1 @@
-Thank you ALX for this oppurtunity
+Starting to code today,so cool
